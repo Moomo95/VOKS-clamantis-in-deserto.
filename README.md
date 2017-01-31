@@ -1,3 +1,4 @@
 # VOKS-clamantis-in-deserto.
 
-i have had tacos on the moon and far superior to the Earth tacos.
+Hi, i'm momo, I'd like to better understand how to use what is on offer and give it to myself.
+
